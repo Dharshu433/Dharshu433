@@ -17,6 +17,6 @@
 ## 📫 Connect with Me  
 - 📧 Email: dharshudharshu433@gmail.com  
 - 📍 Location: Puducherry, India  
-- 🌐 [LinkedIn Profile (if available)]  
+- 🌐 [LinkedIn Profile (https://www.linkedin.com/in/dharshini-v-4b0864281?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)]  
 
 Let's collaborate and build something amazing! 🚀  
